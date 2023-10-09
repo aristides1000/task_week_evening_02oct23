@@ -1,4 +1,4 @@
-# Tarea Lunes 2 de octubre de 2023
+# Tarea Lunes 02 de octubre de 2023
 
 ## Teórica
 

@@ -1,4 +1,4 @@
-# Tarea Viernes 6 de octubre de 2023
+# Tarea Viernes 06 de octubre de 2023
 
 ## Teórica
 

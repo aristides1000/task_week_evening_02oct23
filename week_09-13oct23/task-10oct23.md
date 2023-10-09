@@ -1,4 +1,4 @@
-# Tarea Martes 03 de octubre de 2023
+# Tarea Martes 10 de octubre de 2023
 
 ## Teórica
 

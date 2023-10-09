@@ -1,4 +1,4 @@
-# Tarea Miercoles 4 de octubre de 2023
+# Tarea Miercoles 04 de octubre de 2023
 
 ## Teórica
 
